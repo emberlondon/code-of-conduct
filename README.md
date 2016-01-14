@@ -23,6 +23,7 @@ If you experience or witness harassing behaviour, please report it to a member
 of the volunteer team:
 
 - Jamie White ([@jgwhite](https://twitter.com/jgwhite), [jamie@jgwhite.co.uk](mailto:jamie@jgwhite.co.uk))
+- Ken Snyder ([@yankeeinlondon](https://twitter.com/yankeeinlondon), [ken@ken.net](mailto:ken@ken.net))
 
 Members of the team present at events will identify themselves for in-person
 reporting.
