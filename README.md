@@ -23,8 +23,8 @@ If you experience or witness harassing behaviour, please report it to a member
 of the volunteer team:
 
 - Jamie White ([@jgwhite](https://twitter.com/jgwhite), [jamie@jgwhite.co.uk](mailto:jamie@jgwhite.co.uk))
-- Ken Snyder ([@yankeeinlondon](https://twitter.com/yankeeinlondon), [ken@ken.net](mailto:ken@ken.net))
-- Nik Wakelin ([@nikz](https://twitter.com/nikz), [me@nikwakelin.com](me@nikwakelin.com))
+- Will Raxworthy ([@willrax](https://twitter.com/willrax), [me@willrax.com](mailto:me@willrax.com))
+- Katherin Siracusa ([@katherinlaine](https://twitter.com/katherinlaine), [katherin.siracuas@alphasights.com](mailto:katherin.siracusa@alphasights.com))
 
 Members of the team present at events will identify themselves for in-person
 reporting.
